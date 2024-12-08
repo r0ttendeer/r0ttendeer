@@ -3,7 +3,7 @@
 <h6 align="center"> ꒰ <img src="https://decohoard.carrd.co/assets/images/gallery120/d679e751.gif?v=e0827b7e"/> ꒱ </h6>
 <h5 align="center"><img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=gray&style=for-the-badge&label=󠁪󠁪󠁝󠁝゛" alt=""/></h5>
 <h6><i> ˗ˏˋ eyes without a face ˎˊ˗ </i></h6>
-<h5 align="left"><img src="https://static.wikia.nocookie.net/airdorf/images/a/ab/Spr_CH1_ending2car_1.png/revision/latest?cb=20230226003620"/></h5>
+<h5 align="center"><img src="https://static.wikia.nocookie.net/airdorf/images/a/ab/Spr_CH1_ending2car_1.png/revision/latest?cb=20230226003620"/></h5>
 
 𐔌   .   hello welcome .ᐟ ₊ ꒱ </br>
 pls consider checking out my links . +sending smth on my strawp
