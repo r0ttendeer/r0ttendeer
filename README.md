@@ -1,13 +1,13 @@
-<p align="center"><img src="https://i.imgur.com/UKJjqjv.png" width="700"/></p>
+<p align="center"><img src="https://i.imgur.com/UKJjqjv.png" width="500"/></p>
 <h6 align="center"><i>"No necesito ir al cielo tisú. Si, alma mía, la gloria eres tú."</i></h6>
-<h6 align="center"><img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=gray&style=for-the-badge&label=󠁪󠁪󠁝󠁝m⊕r†is+count." alt=""/></br>
-</h6>
-<p align="center"> <strong>♱</strong> . hello welcome .ᐟ </br>
-you can call me <strong><i>lucy</i></strong> or <strong><i>rotten</i></strong> , im just a silly little goober on pt :3 
-<p align="center"><img src="https://64.media.tumblr.com/20dc290199c8f7c9f9512566e3dd6dc6/9605300ae0437751-68/s75x75_c1/586df073e30c295b48712743b675567c72dc112b.pnj"/><img src="https://i.imgur.com/dM8U8mS.png"/> <img src="https://pix.crd.co/assets/images/gallery19/4a9df986.png?v=95dd3781" width="26"/></br>
+<h6 align="center"> <img src="https://wilardo.crd.co/assets/images/gallery04/16c49c1c.png?v=1f422df8" width="25"/> . . . <img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=gray&style=for-the-badge&label=󠁪󠁪󠁝󠁝m⊕r†is+count." alt=""/> . .+</h6>
+<p> hello welcome </br>
+you can call me <strong><i>lucy</i></strong> or <strong><i>rotten</i></strong> , im just a silly little goober on pt ^^
+<br></br>
 pls consider checking out my links . + sending smth on my strawp!! <sub>(cw/tw religious imagery cuz its FAITH themed,,)</sub> </br>
 check my rentry for more info on me (+detailed DNIs) + if u would like 2 int outside of pt!! </br>
 </br>
-<strong>♱</strong> . also int if you like my pt skins or fandoms like ; </br>
+also int if you like my pt skins or fandoms like ; </br>
 <strong>faith</strong>, tf2 / tfc, guts and blackpowder, thats not my neighbor, the boys, tsp, mentopolis, analog horror, house md, hannibal, 8cide hotel </p>
-<h6 align="center"><img src="https://i.imgur.com/CIjzBa8.png" width="700"/> </h6>
+<h6 align="center"><img src="https://i.imgur.com/9x6j6SD.jpeg" width="250"/></h6>
+<h6 align="center"><img src="https://i.imgur.com/CIjzBa8.png" width="600"/> </h6>
