@@ -11,7 +11,6 @@ im just a silly little goober on pt ^^
 <p align="center">pls consider checking out my links + sending smth on my strawp!!<br>
 <sub>(cw/tw religious imagery cuz its FAITH themed,,)</sub></br>
 <br></br>
-<br>
 <p align="center">check my rentry for more info on me (+detailed DNIs)<br>
 + if u would like 2 int outside of pt!! </br>
 <br></br>
@@ -24,4 +23,4 @@ analog horror, house md, hannibal, 8cide hotel </p>
 <br>
 <p align="center">⛧༺ <img src="https://gifcity.carrd.co/assets/images/gallery261/45df5a15.gif?v=9133a0c8" width="20"/> ༻⋆.</p>
 <br>
-<h6 align="center"><img src="https://i.imgur.com/UKJjqjv.png" width="500"/></h6>
+<h6 align="center"><img src="https://i.imgur.com/UKJjqjv.png" width="480"/></h6>
