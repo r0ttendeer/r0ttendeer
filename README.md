@@ -1,5 +1,5 @@
 <p align="center"><img src="https://i.imgur.com/9x6j6SD.jpeg" width="350"/></p>
-<h6 align="center"><i>"𝐵𝑜𝑟𝑛 𝑡𝑜 𝑑𝑖𝑒."</i></h6>
+<h6 align="center"><i>" You know you're better than this. "</i></h6>
 <h6 align="center"><img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=gray&style=for-the-badge&label=󠁪󠁪󠁝󠁝m⊕r†is+count." alt=""/></h6>
 <br></br>
 <p align="center"> hello welcome </br>
