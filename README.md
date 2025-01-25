@@ -8,11 +8,11 @@ im just a silly little goober on pt ^^
 <br></br>
 <h6 align="center">⌣⌣⌣⌣⌣</h6>
 <br>
-<p align="center">pls consider checking out my links + sending smth on my strawp!!<br>
+<p align="center">pls consider checking out</br>
+my links + sending smth on my strawp!!<br>
 <sub>(cw/tw religious imagery cuz its FAITH themed,,)</sub></br>
-<br></br>
-<p align="center">check my rentry for more info on me (+detailed DNIs)<br>
-+ if u would like 2 int outside of pt!! </br>
+<p align="center">check my rentry for more abt me</br>
++ detailed DNIs + social media links </br>
 <br></br>
 <h6 align="center">⌣⌣⌣⌣⌣</h6>
 <br></br>
