@@ -4,7 +4,13 @@
 <br></br>
 <p align="center"> hello welcome </br>
 you can call me <strong><i>lucy</i></strong> or <strong><i>rotten</i></strong> ,<br>
-im just a silly little goober on pt ^^
+im just a silly little goober on pt ^^<br>
+<br></br>
+i'm a multishipper btw so i dont mind if ships INT,<br>
+just be respectful of me & boundaries :3<br>
+<br></br>
+i have bad english / typos on purpose & i'm too shy to </br> 
+respond / int sometimes.. sorry :c <br>
 <br></br>
 <h6 align="center">⌣⌣⌣⌣⌣</h6>
 <br>
