@@ -10,7 +10,7 @@ bad english / typos on purpose & i'm too shy to respond / int sometimes.. sorry 
 <p align="center">pls consider checking out my links for more about me / detailed DNIs <br>
   + sending smth on my strawp!! <sub>(cw/tw religious imagery cuz its FAITH themed,,)</sub></br>
 <br></br>
-<a rel="nofollow me" class="Link--primary" href="https://rentry.co/as-a-dog-returneth-to-its-vomit-so-a-fool-returneth-to-their-folly">rentry</a> , <a rel="nofollow me" class="Link--primary" href="https://deer-heaven.straw.page/">strawpage</a> , <a rel="nofollow me" class="Link--primary" href="https://un-holy.straw.page/">faith strawp</a>
+<a rel="nofollow me" class="Link--primary" href="https://rentry.co/as-a-dog-returneth-to-its-vomit-so-a-fool-returneth-to-their-folly">rentry</a> , <a rel="nofollow me" class="Link--primary" href="https://r0tten.straw.page/">strawpage</a> , <a rel="nofollow me" class="Link--primary" href="https://un-holy.straw.page/">faith strawp</a>
 <br></br>
 <h6 align="center">𓎟𓎟𓎟𓎟𓎟</h6>
 <p align="center">also int if you like my pt skins or fandoms like ; </br>
