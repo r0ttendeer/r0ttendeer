@@ -18,9 +18,8 @@ bad english / typos on purpose & i'm too shy to respond / int sometimes.. sorry 
 the boys, tsp, mentopolis, house md, hannibal, 8cide hotel </p>
 <br>
 <h6 align="center">𓎟𓎟𓎟𓎟𓎟</h6></br>
-<h5 align="left">  ‎ ‎ ‎  ‎ ‎ ‎  ⌞ u get me, and i get u! ^o^ ⌝   ‎ ‎ ‎  ‎ ‎ ‎  <h6 align="center"><img src="https://pixelsafari.neocities.org/favicon/fashion/necklace.gif" width="25"/>
-<br></br>
-<p align="center"><img src="https://media1.tenor.com/m/9L7PfuwSGTsAAAAC/nam-gyu-thanos.gif" width="200"/> <img src="https://media1.tenor.com/m/fqi5pQ3vCnAAAAAC/nam-gyu-thanos.gif" width="190"/> <img src="https://media1.tenor.com/m/QH7Ez1i_4LwAAAAC/nam-gyu-thanos.gif" width="210"/></p>
-<h5 align="right"><img src="https://pixelsafari.neocities.org/favicon/horror/medical/tablet6.gif" width="25"/>   ‎ ‎ ‎  ‎ ‎  ‎   ‎‎ ‎‎‎     ‎  ‎‎       ‎ ‎ ‎  ‎ ‎  ‎   ‎  ‎  ‎ ‎‎ ‎   ‎ ‎ ‎  ‎ ‎  ‎   ‎  ‎  ‎ ‎‎ ‎   ‎ ‎ ‎  ‎ ‎  ‎   ‎  ‎ ‎‎⌞ together, there's rlly nothing we can't do! >.< ⌝  ‎ ‎ ‎  ‎ ‎ ‎  
-  <br></br>
+
+<h6 align="center"><em>⌞ u get me, and i get u! ^o^ ⌝</em></h6>
+<p align="center"><img src="https://pixelsafari.neocities.org/favicon/fashion/necklace.gif" width="25"/> <img src="https://media1.tenor.com/m/9L7PfuwSGTsAAAAC/nam-gyu-thanos.gif" width="200"/> <img src="https://media1.tenor.com/m/fqi5pQ3vCnAAAAAC/nam-gyu-thanos.gif" width="190"/> <img src="https://media1.tenor.com/m/QH7Ez1i_4LwAAAAC/nam-gyu-thanos.gif" width="210"/> <img src="https://pixelsafari.neocities.org/favicon/horror/medical/tablet6.gif" width="25"/></p>
+<h6 align="center"><em>‎‎⌞ together, there's rlly nothing we can't do! >.< ⌝</em></h6> </br>
 <h6>i miss them a lot.</h6>
