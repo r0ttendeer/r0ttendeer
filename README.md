@@ -17,3 +17,4 @@ bad english / typos on purpose & i'm too shy to respond / int sometimes.. sorry 
 <p align="center"> <strong>faith, squid game</strong>, guts and blackpowder, thats not my neighbor,<br> 
 the boys, tsp, mentopolis, house md, hannibal, 8cide hotel </p>
 <h6 align="center">𓎟𓎟𓎟𓎟𓎟</h6>
+<p align="center"><img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=cc1c6dfa"/></p>
