@@ -16,6 +16,6 @@ bad english / typos on purpose & i'm too shy to respond / int sometimes.. sorry 
 <p align="center">also int if you like my pt skins or fandoms like ; </br>
 
 <p align="center"> <strong>squid game, house md</strong>, faith, thats not my neighbor, guts & blackpowder<br> 
-the boys, tsp, mentopolis, house md, hannibal, 8cide hotel </p>
+the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 </br>
 <p align="center"><img src="https://pixelsafari.neocities.org/dividers/tablets2.png" width="420"/></p>
