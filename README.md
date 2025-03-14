@@ -1,5 +1,5 @@
 <h6 align="center"><em>⌞  may you never forget me  ⌝</em></h6>
-<p align="center"><img src="https://i.imgur.com/bhsrhsY.png" width="700"/></p>
+<p align="center"><img src="https://i.imgur.com/bhsrhsY.png" width="600"/></p>
 <h6 align="center"><em> ^ by‎ ‎  @vampiricrodeo‎ ‎  o‎n ‎  twt ! ^ </em></h6>
 <h6 align="center"><img src="https://pixelsafari.neocities.org/favicon/fashion/necklace.gif" width="20"/> <img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=ea84ba&style=button&label=󠁪󠁪󠁝󠁝♯" alt=""/> <img src="https://pixelsafari.neocities.org/favicon/horror/medical/tablet6.gif" width="20"/></h6>
 <p align="center"><img src="https://pix.crd.co/assets/images/gallery05/959f59e7.png?v=95dd3781" width="400"/></p>
@@ -19,3 +19,9 @@ bad english / typos on purpose & i'm too shy to respond / int sometimes.. sorry 
 the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 </br>
 <p align="center"><img src="https://pixelsafari.neocities.org/dividers/tablets2.png" width="420"/></p>
+
+<p align="center"><img src="https://pixelsafari.neocities.org/blinkies/heartbeats.gif"/><img src="https://biscuit2.crd.co/assets/images/gallery17/9d43ef71.gif?v=417d2f39"/></p>
+<p align="center"><img src="https://i.imgur.com/8BMGh8m.png" width="600"/></p>
+<h6 align="center"><em> ^ by‎ ‎  me ! ^ </em>
+<p align="center"><em>‎ ‎  gibae / junghun (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  </em></p>
+<p align="center"><img src="https://i.imgur.com/Y96lFTu.gif"/></p>
