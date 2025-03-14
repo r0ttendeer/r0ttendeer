@@ -18,10 +18,22 @@ bad english / typos on purpose & i'm too shy to respond / int sometimes.. sorry 
 <p align="center"> <strong>squid game, house md</strong>, faith, thats not my neighbor, guts & blackpowder<br> 
 the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 </br>
-<p align="center"><img src="https://pixelsafari.neocities.org/dividers/tablets2.png" width="420"/></p>
-
 <p align="center"><img src="https://pixelsafari.neocities.org/blinkies/heartbeats.gif"/><img src="https://biscuit2.crd.co/assets/images/gallery17/9d43ef71.gif?v=417d2f39"/></p>
 <p align="center"><img src="https://i.imgur.com/8BMGh8m.png" width="600"/></p>
-<h6 align="center"><em> ^ by‎ ‎  me ! ^ </em>
-<p align="center"><em>‎ ‎  gibae / junghun (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  </em></p>
-<p align="center"><img src="https://i.imgur.com/Y96lFTu.gif"/></p>
+<h6 align="center"><em> ^ by‎ ‎  me ! ^ </em></br>
+<details>
+<summary><em>gibae shrine ??</em></summary>
+</br>
+<p align="center">ヾ(≧▽≦*)o</p>
+<p align="center"><em>‎ ‎  gibae ノ junghun ‎  (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  </em></p>
+<p align="center"><img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><img src="https://i.imgur.com/efkcHNS.png"/><img src="https://i.imgur.com/DMnQqEC.png"/><img src="https://i.imgur.com/3B45rbD.png"/></p>
+  <img src="https://media1.tenor.com/m/bvAm6P15xCAAAAAd/junghun-jungbae.gif" width="150"/> <img src="https://i.imgur.com/pgHazx3.gif" width="150"/> <img src="https://media1.tenor.com/m/N1epwuHJbT0AAAAd/laughing-park-jung-bae.gif" width="150"/><img src="https://i.imgur.com/qbGtUeR.gif" width="160"/><img src="https://i.imgur.com/4vjaDDI.jpeg" width="270"/></p>
+</details>
+<details>
+<summary><em align="center">More Squid Game stamps.ᐟ ‎  Made by me :3</em></summary>
+</br>
+<p align="center"><img src="https://i.imgur.com/j11y7bu.gif"/> <img src="https://i.imgur.com/suw44Dn.gif"/> <img src="https://i.imgur.com/3uoqHtt.gif"/> <img src="https://i.imgur.com/c9VMyAj.gif"/> <img src="https://i.imgur.com/30wtbgA.gif"/> <img src="https://i.imgur.com/aeFTjY3.gif"/>
+<img src="https://i.imgur.com/ozDzvP8.gif"/> <img src="https://i.imgur.com/VmO0UON.gif"/> <img src="https://i.imgur.com/7rubwEW.gif"/> <img src="https://i.imgur.com/NNWvKpj.gif"/> <img src="https://i.imgur.com/6vta184.gif"/> <img src="https://i.imgur.com/DFZSYML.gif"/> <img src="https://i.imgur.com/LNqjvzY.gif"/> <img src="https://i.imgur.com/O1kIkhP.gif"/> <img src="https://i.imgur.com/6x8YrqN.gif"/> <img src="https://i.imgur.com/HsZYQbm.gif"/> <img src="https://i.imgur.com/pirezw8.gif"/> <img src="https://i.imgur.com/Wh9ztxo.gif"/> <img src="https://i.imgur.com/CDmK7hx.gif"/> <img src="https://i.imgur.com/jbSvDjD.gif"/></p>
+</details>
+</br>
+<p align="center"><img src="" width="420"/></p>
