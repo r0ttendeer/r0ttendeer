@@ -74,7 +74,7 @@ the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 <img src="https://i.imgur.com/DFZSYML.gif"/><img src="https://i.imgur.com/LNqjvzY.gif"/><img src="https://i.imgur.com/pirezw8.gif"/><img src="https://i.imgur.com/Wh9ztxo.gif"/><img src="https://i.imgur.com/CDmK7hx.gif"/><img src="https://i.imgur.com/jbSvDjD.gif"/></p>
 
 ꒰ Mi-na ꒱</br>
-<img src=""/><img src="https://i.imgur.com/BU6Kl02.gif"/><img src="https://i.imgur.com/dh5PuxF.gif"/>
+<img src="https://i.imgur.com/mVqMBnw.gif"/><img src="https://i.imgur.com/BU6Kl02.gif"/><img src="https://i.imgur.com/dh5PuxF.gif"/>
 
 ꒰ Yong-sik & Geum-ja ꒱</br>
 <img src="https://i.imgur.com/OwhQmaa.gif"/>
