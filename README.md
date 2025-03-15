@@ -38,18 +38,58 @@ the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 <p align="center">꒰ Dae-ho ꒱</br>
 <img src="https://i.imgur.com/j11y7bu.gif"/>
 
-꒰ S1 Gi-hun ꒱</br>
-<img src="https://i.imgur.com/3uoqHtt.gif"/><img src="https://i.imgur.com/30wtbgA.gif"/>
+꒰ S1 & S2 Gi-hun ꒱</br>
+<img src="https://i.imgur.com/3uoqHtt.gif"/><img src="https://i.imgur.com/30wtbgA.gif"/><img src="https://i.imgur.com/FvA7hiQ.gif"/><img src="https://i.imgur.com/DTtqIO8.gif"/></br>
+<img src="https://i.imgur.com/axT6qMn.gif"/>
+
+꒰ Sang-woo ꒱</br>
+<img src="https://i.imgur.com/p12PwT1.gif"/><img src="https://i.imgur.com/V9UtB1h.gif"/><img src="https://i.imgur.com/CFx96E1.gif"/>
 
 ꒰ Jung-bae ꒱</br>
 <img src="https://i.imgur.com/aeFTjY3.gif"/>
 
+꒰ Gi-hun & Jung-bae ꒱</br>
+<img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/DMnQqEC.png"/><img src="https://i.imgur.com/efkcHNS.png"/><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><img src="https://i.imgur.com/3B45rbD.png"/><img src=""/>
+
+꒰ In-ho / Young-il + <em>silly</em> ꒱</br>
+<img src="https://i.imgur.com/75GJfZy.gif"/><img src="https://i.imgur.com/rYYgOiD.gif"/>
+
+꒰ Hyun-ju ꒱</br>
+<img src="https://i.imgur.com/T6gsG50.gif"/>
+
 ꒰ Nam-gyu ꒱</br>
 <img src="https://i.imgur.com/O1kIkhP.gif"/><img src="https://i.imgur.com/6x8YrqN.gif"/><img src="https://i.imgur.com/HsZYQbm.gif"/>
+
+꒰ Min-su ꒱</br>
+<img src="https://i.imgur.com/aPviNAg.gif"/><img src="https://i.imgur.com/2vSZGD8.gif"/>
+
+꒰ Se-mi ꒱</br>
+<img src="https://i.imgur.com/UNVBvP4.gif"/><img src=""/>
+
+꒰ Gyeong-su ꒱</br>
+<img src="https://i.imgur.com/JHzP8ug.gif"/><img src="https://i.imgur.com/aEcGfVB.gif"/>
 
 ꒰ Thangyu ꒱</br>
 <img src="https://i.imgur.com/ozDzvP8.gif"/><img src="https://i.imgur.com/VmO0UON.gif"/><img src="https://i.imgur.com/7rubwEW.gif"/><img src="https://i.imgur.com/NNWvKpj.gif"/><img src="https://i.imgur.com/6vta184.gif"/></br>
 <img src="https://i.imgur.com/DFZSYML.gif"/><img src="https://i.imgur.com/LNqjvzY.gif"/><img src="https://i.imgur.com/pirezw8.gif"/><img src="https://i.imgur.com/Wh9ztxo.gif"/><img src="https://i.imgur.com/CDmK7hx.gif"/><img src="https://i.imgur.com/jbSvDjD.gif"/></p>
+
+꒰ Mi-na ꒱</br>
+<img src=""/><img src="https://i.imgur.com/BU6Kl02.gif"/><img src="https://i.imgur.com/dh5PuxF.gif"/>
+
+꒰ Yong-sik & Geum-ja ꒱</br>
+<img src="https://i.imgur.com/OwhQmaa.gif"/>
+
+꒰ Mi-nyeo ꒱</br>
+<img src="https://i.imgur.com/Z2hXIcy.gif"/>
+
+꒰ No-eul ꒱</br>
+<img src="https://i.imgur.com/fSKpDno.gif"/><img src="https://i.imgur.com/nlNkDxp.gif"/>
+
+꒰ STAFF ‎ :  ‎  Captured Square Guard ‎  / ‎  Circle Workers ‎  / ‎  Black Square Manager ꒱</br>
+<img src="https://i.imgur.com/CkNGdhT.gif"/> ‎  ‎     ‎  <img src="https://i.imgur.com/HMsWktN.gif"/> ‎    ‎   ‎  <img src="https://i.imgur.com/AQI9qP5.gif"/>
+
+꒰ The Recruiter ꒱</br>
+<img src="https://i.imgur.com/WFSLEgr.gif"/>
 
 ꒰ Woo-Seok ꒱</br>
 <img src="https://i.imgur.com/c9VMyAj.gif"/>
