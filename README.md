@@ -20,20 +20,38 @@ the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 </br>
 <p align="center"><img src="https://pixelsafari.neocities.org/blinkies/heartbeats.gif"/><img src="https://biscuit2.crd.co/assets/images/gallery17/9d43ef71.gif?v=417d2f39"/></p>
 <p align="center"><img src="https://i.imgur.com/8BMGh8m.png" width="600"/></p>
-<h6 align="center"><em> ^ by‎ ‎  me ! ^ </em></br>
+<h6 align="center"><em> ^ by‎ ‎  me ! ^ </em>
+<br></br>
+<p align="center"><img src="https://favicons.neocities.org/images/animals/pink%20ribbon%20divider.png" width="420"/></p>
 <details>
-<summary><em>gibae shrine ??</em></summary>
+<summary><em>gibae shrine ノ collection ‎  ꒰✿ˊᗜˋ ꒱ ‹3</em></summary>
 </br>
-<p align="center">ヾ(≧▽≦*)o</p>
 <p align="center"><em>‎ ‎  gibae ノ junghun ‎  (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  </em></p>
 <p align="center"><img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><img src="https://i.imgur.com/efkcHNS.png"/><img src="https://i.imgur.com/DMnQqEC.png"/><img src="https://i.imgur.com/3B45rbD.png"/></p>
   <img src="https://media1.tenor.com/m/bvAm6P15xCAAAAAd/junghun-jungbae.gif" width="150"/> <img src="https://i.imgur.com/pgHazx3.gif" width="150"/> <img src="https://media1.tenor.com/m/N1epwuHJbT0AAAAd/laughing-park-jung-bae.gif" width="150"/><img src="https://i.imgur.com/qbGtUeR.gif" width="160"/><img src="https://i.imgur.com/4vjaDDI.jpeg" width="270"/></p>
 </details>
 <details>
-<summary><em align="center">More Squid Game stamps.ᐟ ‎  Made by me :3</em></summary>
+<summary><em align="center">˗ˏˋ More Squid Game stamps! ˎˊ˗ ‎  ( Made by me ^^ )</em></summary>
 </br>
-<p align="center"><img src="https://i.imgur.com/j11y7bu.gif"/> <img src="https://i.imgur.com/suw44Dn.gif"/> <img src="https://i.imgur.com/3uoqHtt.gif"/> <img src="https://i.imgur.com/c9VMyAj.gif"/> <img src="https://i.imgur.com/30wtbgA.gif"/> <img src="https://i.imgur.com/aeFTjY3.gif"/>
-<img src="https://i.imgur.com/ozDzvP8.gif"/> <img src="https://i.imgur.com/VmO0UON.gif"/> <img src="https://i.imgur.com/7rubwEW.gif"/> <img src="https://i.imgur.com/NNWvKpj.gif"/> <img src="https://i.imgur.com/6vta184.gif"/> <img src="https://i.imgur.com/DFZSYML.gif"/> <img src="https://i.imgur.com/LNqjvzY.gif"/> <img src="https://i.imgur.com/O1kIkhP.gif"/> <img src="https://i.imgur.com/6x8YrqN.gif"/> <img src="https://i.imgur.com/HsZYQbm.gif"/> <img src="https://i.imgur.com/pirezw8.gif"/> <img src="https://i.imgur.com/Wh9ztxo.gif"/> <img src="https://i.imgur.com/CDmK7hx.gif"/> <img src="https://i.imgur.com/jbSvDjD.gif"/></p>
+<p align="center">
+</br>
+<p align="center">꒰ Dae-ho ꒱</br>
+<img src="https://i.imgur.com/j11y7bu.gif"/>
+
+꒰ S1 Gi-hun ꒱</br>
+<img src="https://i.imgur.com/3uoqHtt.gif"/><img src="https://i.imgur.com/30wtbgA.gif"/>
+
+꒰ Jung-bae ꒱</br>
+<img src="https://i.imgur.com/aeFTjY3.gif"/>
+
+꒰ Nam-gyu ꒱</br>
+<img src="https://i.imgur.com/O1kIkhP.gif"/><img src="https://i.imgur.com/6x8YrqN.gif"/><img src="https://i.imgur.com/HsZYQbm.gif"/>
+
+꒰ Thangyu ꒱</br>
+<img src="https://i.imgur.com/ozDzvP8.gif"/><img src="https://i.imgur.com/VmO0UON.gif"/><img src="https://i.imgur.com/7rubwEW.gif"/><img src="https://i.imgur.com/NNWvKpj.gif"/><img src="https://i.imgur.com/6vta184.gif"/></br>
+<img src="https://i.imgur.com/DFZSYML.gif"/><img src="https://i.imgur.com/LNqjvzY.gif"/><img src="https://i.imgur.com/pirezw8.gif"/><img src="https://i.imgur.com/Wh9ztxo.gif"/><img src="https://i.imgur.com/CDmK7hx.gif"/><img src="https://i.imgur.com/jbSvDjD.gif"/></p>
+
+꒰ Woo-Seok ꒱</br>
+<img src="https://i.imgur.com/c9VMyAj.gif"/>
 </details>
-</br>
-<p align="center"><img src="" width="420"/></p>
+<p align="center"><img src="https://pix.crd.co/assets/images/gallery05/959f59e7.png?v=95dd3781" width="420"/></p>
