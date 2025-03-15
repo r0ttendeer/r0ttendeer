@@ -27,7 +27,7 @@ the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 <summary><em>gibae shrine ノ collection ‎  ꒰✿ˊᗜˋ ꒱ ‹3</em></summary>
 </br>
 <p align="center"><em>‎ ‎  gibae ノ junghun ‎  (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  </em></p>
-<p align="center"><img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><img src="https://i.imgur.com/efkcHNS.png"/><img src="https://i.imgur.com/DMnQqEC.png"/><img src="https://i.imgur.com/3B45rbD.png"/></p>
+<p align="center"><img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><img src="https://i.imgur.com/efkcHNS.png"/><img src="https://i.imgur.com/DMnQqEC.png"/><img src="https://i.imgur.com/3B45rbD.png"/><img src="https://i.imgur.com/agFmPni.png"/><img src="https://i.imgur.com/fi83KDB.png"/></p>
   <img src="https://media1.tenor.com/m/bvAm6P15xCAAAAAd/junghun-jungbae.gif" width="150"/> <img src="https://i.imgur.com/pgHazx3.gif" width="150"/> <img src="https://media1.tenor.com/m/N1epwuHJbT0AAAAd/laughing-park-jung-bae.gif" width="150"/><img src="https://i.imgur.com/qbGtUeR.gif" width="160"/><img src="https://i.imgur.com/4vjaDDI.jpeg" width="270"/></p>
 </details>
 <details>
@@ -39,23 +39,29 @@ the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 <img src="https://i.imgur.com/j11y7bu.gif"/>
 
 ꒰ S1 & S2 Gi-hun ꒱</br>
-<img src="https://i.imgur.com/3uoqHtt.gif"/><img src="https://i.imgur.com/30wtbgA.gif"/><img src="https://i.imgur.com/FvA7hiQ.gif"/><img src="https://i.imgur.com/DTtqIO8.gif"/></br>
-<img src="https://i.imgur.com/axT6qMn.gif"/>
+<img src="https://i.imgur.com/3uoqHtt.gif"/><img src="https://i.imgur.com/30wtbgA.gif"/><img src="https://i.imgur.com/e3lTuls.png"/><img src="https://i.imgur.com/FvA7hiQ.gif"/><img src="https://i.imgur.com/DTtqIO8.gif"/></br>
+<img src="https://i.imgur.com/axT6qMn.gif"/><img src="https://i.imgur.com/tDOXj5J.png"/>
 
 ꒰ Sang-woo ꒱</br>
-<img src="https://i.imgur.com/p12PwT1.gif"/><img src="https://i.imgur.com/V9UtB1h.gif"/><img src="https://i.imgur.com/CFx96E1.gif"/>
+<img src="https://i.imgur.com/p12PwT1.gif"/><img src="https://i.imgur.com/V9UtB1h.gif"/><img src="https://i.imgur.com/CFx96E1.gif"/><img src="https://i.imgur.com/GxpVUj9.png"/>
+
+꒰ Ali & Sang-woo ꒱</br>
+<img src="https://i.imgur.com/4GZ7wQU.png"/><img src="https://i.imgur.com/yDYaliI.png"/><img src="https://i.imgur.com/SEfgG3J.png"/><img src="https://i.imgur.com/NbyCo17.png"/><img src="https://i.imgur.com/RYoXLya.png"/>
 
 ꒰ Jung-bae ꒱</br>
-<img src="https://i.imgur.com/aeFTjY3.gif"/>
+<img src="https://i.imgur.com/aeFTjY3.gif"/><img src="https://i.imgur.com/E8cQvzW.png"/><img src="https://i.imgur.com/P7ZxzsI.png"/><img src="https://i.imgur.com/rQqPbYk.png"/>
 
 ꒰ Gi-hun & Jung-bae ꒱</br>
-<img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/DMnQqEC.png"/><img src="https://i.imgur.com/efkcHNS.png"/><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><img src="https://i.imgur.com/3B45rbD.png"/><img src=""/>
+<img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/DMnQqEC.png"/><img src="https://i.imgur.com/efkcHNS.png"/><img src="https://i.imgur.com/fi83KDB.png"/><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><img src="https://i.imgur.com/3B45rbD.png"/><img src="https://i.imgur.com/agFmPni.png"/>
 
 ꒰ In-ho / Young-il + <em>silly</em> ꒱</br>
 <img src="https://i.imgur.com/75GJfZy.gif"/><img src="https://i.imgur.com/rYYgOiD.gif"/>
 
 ꒰ Hyun-ju ꒱</br>
 <img src="https://i.imgur.com/T6gsG50.gif"/>
+
+꒰ Gyeong-seok ꒱</br>
+<img src="https://i.imgur.com/LAwygYd.png"/><img src="https://i.imgur.com/PsKJm1X.png"/>
 
 ꒰ Nam-gyu ꒱</br>
 <img src="https://i.imgur.com/O1kIkhP.gif"/><img src="https://i.imgur.com/6x8YrqN.gif"/><img src="https://i.imgur.com/HsZYQbm.gif"/>
@@ -64,7 +70,7 @@ the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 <img src="https://i.imgur.com/aPviNAg.gif"/><img src="https://i.imgur.com/2vSZGD8.gif"/>
 
 ꒰ Se-mi ꒱</br>
-<img src="https://i.imgur.com/UNVBvP4.gif"/><img src=""/>
+<img src="https://i.imgur.com/UNVBvP4.gif"/>
 
 ꒰ Gyeong-su ꒱</br>
 <img src="https://i.imgur.com/JHzP8ug.gif"/><img src="https://i.imgur.com/aEcGfVB.gif"/>
@@ -72,6 +78,9 @@ the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 ꒰ Thangyu ꒱</br>
 <img src="https://i.imgur.com/ozDzvP8.gif"/><img src="https://i.imgur.com/VmO0UON.gif"/><img src="https://i.imgur.com/7rubwEW.gif"/><img src="https://i.imgur.com/NNWvKpj.gif"/><img src="https://i.imgur.com/6vta184.gif"/></br>
 <img src="https://i.imgur.com/DFZSYML.gif"/><img src="https://i.imgur.com/LNqjvzY.gif"/><img src="https://i.imgur.com/pirezw8.gif"/><img src="https://i.imgur.com/Wh9ztxo.gif"/><img src="https://i.imgur.com/CDmK7hx.gif"/><img src="https://i.imgur.com/jbSvDjD.gif"/></p>
+
+꒰ Daegyu ꒱</br>
+<img src="https://i.imgur.com/5ID9peV.png"/>
 
 ꒰ Mi-na ꒱</br>
 <img src="https://i.imgur.com/mVqMBnw.gif"/><img src="https://i.imgur.com/BU6Kl02.gif"/><img src="https://i.imgur.com/dh5PuxF.gif"/>
@@ -93,5 +102,22 @@ the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 
 ꒰ Woo-Seok ꒱</br>
 <img src="https://i.imgur.com/c9VMyAj.gif"/>
+
+-----
+<p align="center">・┆✦ʚ♡ɞ✦ ┆・</p>
+<p align="center"><em> A / N : ‎</em></br>
+<em>might make more stamps in the future but i'll put em somewhere else</em></br>
+rarepairs && side-characters guaranteed ! /srs</br>
+<br></br>
+<strong>* f2u btw *</strong> , just download the image</br>
+<em>&& a credit / link-back would be appreciated but not needed ! ‎‹𝟹</em></br>
+<em>have fun :D </em></p>
+
+<p align="center">・┆✦ʚ♡ɞ✦ ┆・</p>
+
+<h6 align="center"> Credits to : </br>
+<a rel="nofollow me" class="Link--primary" href="https://www.deviantart.com/dawnredd/art/How-to-make-Gif-Stamps-by-Redd-548614787">This</a> GIF stamp tutorial ( bit outdated, but still works ! ) , ‎  </br>
+  <a rel="nofollow me" class="Link--primary" href="https://www.deviantart.com/zilla774/art/Stamp-Template-29379001">zilla774's Stamp Template</a> ( i think the download is broken, still useful either way ! ^^ ) ‎  , </br>
+  && the <a rel="nofollow me" class="Link--primary" href="https://www.deviantart.com/wisp-night/art/Hollow-Heart-Border-Pack-428132774">Hollow Heart Border by Wisp-Night</a> !
 </details>
-<p align="center"><img src="https://pix.crd.co/assets/images/gallery05/959f59e7.png?v=95dd3781" width="420"/></p>
+<p align="center"><img src="https://pix.crd.co/assets/images/gallery05/959f59e7.png?v=95dd3781" width="400"/></p>
