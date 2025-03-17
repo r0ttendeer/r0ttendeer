@@ -27,10 +27,9 @@ the boys, tsp, mentopolis, hannibal, 8cide hotel </p>
 <details>
 <summary><em>gibae shrine ノ collection ‎  ꒰✿ˊᗜˋ ꒱ ‹3</em></summary>
 </br>
-<p align="center"><em>‎ ‎  gibae ノ junghun ‎  (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  </em></p>
 <p align="center"><img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><img src="https://i.imgur.com/efkcHNS.png"/><img src="https://i.imgur.com/DMnQqEC.png"/><img src="https://i.imgur.com/3B45rbD.png"/><img src="https://i.imgur.com/agFmPni.png"/><img src="https://i.imgur.com/fi83KDB.png"/></p>
   <img src="https://media1.tenor.com/m/bvAm6P15xCAAAAAd/junghun-jungbae.gif" width="150"/> <img src="https://i.imgur.com/pgHazx3.gif" width="150"/> <img src="https://media1.tenor.com/m/N1epwuHJbT0AAAAd/laughing-park-jung-bae.gif" width="150"/><img src="https://i.imgur.com/qbGtUeR.gif" width="160"/><img src="https://i.imgur.com/4vjaDDI.jpeg" width="270"/></p>
   <h6 align="center">・ʚ♡ɞ・</h6>
-  <h6 align="center"><em>( Made by me ^^ )</em></h6>
+  <h6 align="center"><em>‎ ‎  gibae ノ junghun ‎  (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  </em></h6>
 </details>
 <p align="center"><img src="https://pix.crd.co/assets/images/gallery05/959f59e7.png?v=95dd3781" width="400"/></p>
