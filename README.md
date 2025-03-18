@@ -1,4 +1,3 @@
-<h6 align="center"><em>⌞  may you never forget me  ⌝</em></h6>
 <p align="center"><em>৻<img src="https://i.imgur.com/nLc0dlQ.gif"/>৲ <a href="https://rotten-stamps.neocities.org/">˗ˏˋ Squid Game stamps! ˎˊ˗</a></em></p>
 <p align="center"><img src="https://i.imgur.com/bhsrhsY.png" width="600"/></p>
 <h6 align="center"><em> ^ by‎ ‎  @vampiricrodeo‎ ‎  o‎n ‎  twt ! ^ </em></h6>
