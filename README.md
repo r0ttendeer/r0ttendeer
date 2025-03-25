@@ -1,4 +1,4 @@
-<h3 align="center"><img src="https://pixelsafari.neocities.org/text/new2.gif" width="46"/> ‎ ‎ ‎‎<img src="https://yokai.crd.co/assets/images/gallery10/0ef4b45d.gif?v=b4df531c" width="15"/> ‎ ‎  <a href="https://rotten-stamps.neocities.org/"><em>‎  Squid‎  Game‎  stamps!‎  </em></a></h3>
+<h3 align="center"><img src="https://pixelsafari.neocities.org/text/new2.gif" width="57"/>  ‎ <img src="https://yokai.crd.co/assets/images/gallery10/0ef4b45d.gif?v=b4df531c" width="20"/> ‎<a href="https://rotten-stamps.neocities.org/"><em>‎  Squid‎  Game‎  stamps!‎  </em></a></h3>
 <p align="center"><img src="https://i.imgur.com/f6JreQS.png" width="580"/></p>
 <p align="center"><img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=ea84ba&style=plastic&label=󠁪󠁪󠁝󠁝♡" alt=""/></p>
 <p align="center"><img src="https://pix.crd.co/assets/images/gallery05/959f59e7.png?v=95dd3781" width="400"/></p>
