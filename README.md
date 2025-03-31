@@ -19,4 +19,4 @@
   <h6 align="center">・ʚ♡ɞ・</h6>
   <h6 align="center"><em>‎ ‎  gibae ノ junghun ‎  (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  <br> my... my racehorses . . .</em></h6>
 </details></h6>
-<h3 align="center"><img src="https://i.imgur.com/hoiepvM.jpeg" width="630"/></h3>
+<h3 align="center"><img src="https://i.imgur.com/QU6erYS.jpeg" width="630"/></h3>
