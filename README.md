@@ -13,10 +13,13 @@
 <h6 align="center"><details>
 <summary><em>gibae mini shrine ?? ノ collection</em> ‎  ꒰✿ˊᗜˋ ꒱ ‹3</summary>
 </br>
-<p align="center"><img src="https://pixelsafari.neocities.org/blinkies/heartbeats.gif"/><img src="https://biscuit2.crd.co/assets/images/gallery17/9d43ef71.gif?v=417d2f39"/></p>
-<p align="center"><img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><img src="https://i.imgur.com/efkcHNS.png"/><img src="https://i.imgur.com/DMnQqEC.png"/><img src="https://i.imgur.com/3B45rbD.png"/><img src="https://i.imgur.com/agFmPni.png"/><img src="https://i.imgur.com/fi83KDB.png"/><img src="https://i.imgur.com/mMSOQyQ.png"/></p>
-  <img src="https://media1.tenor.com/m/bvAm6P15xCAAAAAd/junghun-jungbae.gif" width="150"/> <img src="https://i.imgur.com/pgHazx3.gif" width="150"/> <img src="https://media1.tenor.com/m/N1epwuHJbT0AAAAd/laughing-park-jung-bae.gif" width="150"/><img src="https://i.imgur.com/qbGtUeR.gif" width="160"/><img src="https://i.imgur.com/4vjaDDI.jpeg" width="270"/></p>
+
+  <p align="center"><img src="https://i.imgur.com/orVogkm.gif"/><img src="https://i.imgur.com/7preDqE.gif"/><img src="https://i.imgur.com/YUsDHy5.gif"/></p>
+  <p align="center"><img src="https://i.imgur.com/4FrNFhw.jpeg" width="380"/> ‎    ‎    ‎ ‎     ‎   ‎   ‎    ‎ ‎    <br><img src="https://pixelsafari.neocities.org/blinkies/heartbeats.gif"/><img src="https://biscuit2.crd.co/assets/images/gallery17/9d43ef71.gif?v=417d2f39"/><img src="https://i.imgur.com/8FZFdxG.gif"/><img src="https://i.imgur.com/xzwqNTc.gif"/><img src="https://i.imgur.com/Hfg6r0h.gif"/></p>
+    
+<p align="center"><img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/efkcHNS.png"/><img src="https://i.imgur.com/DMnQqEC.png"/><img src="https://i.imgur.com/fi83KDB.png"/><img src="https://i.imgur.com/eRJIPto.png"/><br><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><br><img src="https://media1.tenor.com/m/kgM7TdN0u18AAAAd/jungbae-gihun.gif" width="210"/><br><img src="https://i.imgur.com/agFmPni.png"/><img src="https://i.imgur.com/F6G20ii.png"/><img src="https://i.imgur.com/3B45rbD.png"/><img src="https://i.imgur.com/mMSOQyQ.png"/><br><img src="https://i.imgur.com/pgHazx3.gif" width="130"/> <img src="https://media1.tenor.com/m/N1epwuHJbT0AAAAd/laughing-park-jung-bae.gif" width="130"/><br>
+  <img src="https://media1.tenor.com/m/bvAm6P15xCAAAAAd/junghun-jungbae.gif" width="150"/> <img src="https://i.imgur.com/qbGtUeR.gif" width="160"/><img src="https://i.imgur.com/4vjaDDI.jpeg" width="280"/></p>
   <h6 align="center">・ʚ♡ɞ・</h6>
-  <h6 align="center"><em>‎ ‎  gibae ノ junghun ‎  (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  <br> my... my racehorses . . .</em></h6>
+  <p align="center"><em>‎ ‎  gibae ノ junghun ‎  (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  <br> my... my racehorses . . .</em></p>
 </details></h6>
 <h3 align="center"><img src="https://i.imgur.com/QU6erYS.jpeg" width="630"/></h3>
