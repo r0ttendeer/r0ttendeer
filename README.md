@@ -18,7 +18,7 @@
   <p align="center"><img src="https://i.imgur.com/W3STDjV.jpeg" width="460"/> ‎    ‎    ‎ ‎     ‎   ‎   ‎ ‎     ‎  ‎    ‎ ‎    <br><img src="https://pixelsafari.neocities.org/blinkies/heartbeats.gif"/><img src="https://biscuit2.crd.co/assets/images/gallery17/9d43ef71.gif?v=417d2f39"/><img src="https://i.imgur.com/8FZFdxG.gif"/><img src="https://i.imgur.com/xzwqNTc.gif"/><img src="https://i.imgur.com/Hfg6r0h.gif"/></p>
     
 <p align="center"><img src="https://i.imgur.com/Z4XimF9.gif"/><img src="https://i.imgur.com/Y96lFTu.gif"/><img src="https://i.imgur.com/u1MWTZG.gif"/><br><br><img src="https://i.imgur.com/pgHazx3.gif" width="130"/> <img src="https://media1.tenor.com/m/N1epwuHJbT0AAAAd/laughing-park-jung-bae.gif" width="130"/><br>
-  <img src="https://media1.tenor.com/m/bvAm6P15xCAAAAAd/junghun-jungbae.gif" width="150"/> <img src="https://i.imgur.com/qbGtUeR.gif" width="160"/><img src="https://i.imgur.com/4vjaDDI.jpeg" width="280"/></p>
+  <img src="https://i.imgur.com/sTOFobY.gif" width="150"/> <img src="https://i.imgur.com/qbGtUeR.gif" width="160"/><img src="https://i.imgur.com/4vjaDDI.jpeg" width="280"/></p>
   <h6 align="center">・ʚ♡ɞ・</h6>
   <p align="center"><em>‎ ‎  gibae ノ junghun ‎  (/p /r)‎ ‎  my‎ ‎  beloved <3‎ ‎  <br> my... my racehorses . . .</em></p>
 </details></h6>
