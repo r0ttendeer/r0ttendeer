@@ -13,7 +13,7 @@
 <h6 align="center"><details>
 <summary><em>gibae mini shrine ?? ノ collection</em> ‎  ꒰✿ˊᗜˋ ꒱ ‹3</summary>
 </br>
-
+<p align="center"> ‎  Full shrine at  <a rel="nofollow me" class="Link--primary" href="https://r0tten.straw.page/gibae-shrine">Gibae Strawpage </a> <img src="https://wilardo.crd.co/assets/images/gallery04/a6c0cc67.gif?v=736fa498"/><br><em> ( bright ‎ ‎  && ‎ ‎  pink‎ ‎   && ‎ ‎  <strong>best viewed in desktop !</strong> ) </em><br></p>
   <p align="center"><img src="https://i.imgur.com/orVogkm.gif"/><img src="https://i.imgur.com/7preDqE.gif"/><img src="https://i.imgur.com/YUsDHy5.gif"/></p>
   <p align="center"><img src="https://i.imgur.com/W3STDjV.jpeg" width="460"/> ‎    ‎    ‎ ‎     ‎   ‎   ‎ ‎     ‎  ‎    ‎ ‎    <br><img src="https://pixelsafari.neocities.org/blinkies/heartbeats.gif"/><img src="https://biscuit2.crd.co/assets/images/gallery17/9d43ef71.gif?v=417d2f39"/><img src="https://i.imgur.com/8FZFdxG.gif"/><img src="https://i.imgur.com/xzwqNTc.gif"/><img src="https://i.imgur.com/Hfg6r0h.gif"/></p>
     
