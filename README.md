@@ -1,8 +1,11 @@
-<p align="center"><img alt="Static Badge" src="https://img.shields.io/badge/_‎ ‎  _*_‎ ‎_Revamp_soon_!-101319?style=square&logo=Undertale&logoColor=F00204&logoSize=auto">
-<br><br>
-  <img src="https://files.catbox.moe/k1bryx.gif"/><br>
-  <img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=8d8d8d&style=square&label=󠁪󠁪󠁝󠁝󠁵󠁵🦴" alt=""/><br>
-  <a rel="nofollow me" class="Link--primary" href="https://rentry.co/rotten-deer">rentry ㅤbyi</a>   ‎     ‎  ‎‎ ݁    ‎ ‎     ‎  ‎<a rel="nofollow me" class="Link--primary" href="https://fluffybuns.straw.page/">strawpage</a> ‎    ‎ ݁    ‎ ‎  <a rel="nofollow me" class="Link--primary" href="https://rottenflower.atabook.org/">atabook</a></p>
-<p align="center"><img src="https://files.catbox.moe/y8jlqn.png" width="350" height="2"/><br><br>      𓏲    ‎  <em>lucyㅤㅤㅤo</em>rㅤㅤㅤrotten     ‎  ꔫ𓂅       <br>      ౿ ݁  .  <strong>UT</strong>ㅤ ♡ㅤ othe<em>r ㅤfandoms</em>  ︵   ｡ Ꮺ</p>
-<p align="center"><sub><em>tooㅤshyㅤtoㅤint/respondㅤsometimes</em></sub><br>
-  <br><img src="https://files.catbox.moe/y8jlqn.png" width="350" height="2"/></p>
+<h6 align="center"><em>Stray bull℮t from th℮ barr℮l of love</em> <img src="https://files.catbox.moe/28rs26.gif"><br></h6>
+  <p align="center"><img src="https://i.imgur.com/A38PTEh.gif" width="170"/><br>
+  <img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=8d8d8d&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵🦷" alt=""/> <img src="https://i.imgur.com/sKudeH0.gif"/><br>
+  <a rel="nofollow me" class="Link--primary" href="https://rentry.co/doublegun">r℮ᥒtry</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  ‎<a rel="nofollow me" class="Link--primary" href="https://doublegun.straw.page/">strawpag℮</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  <a rel="nofollow me" class="Link--primary" href="https://www.tumblr.com/to-my-rotten-core">tumblr</a></p>
+<p align="center"><img src="https://files.catbox.moe/sbrm5h.png" width="350"/><br>
+  <img src="https://files.catbox.moe/z7nkhb.gif" height="25"/>౿     <img src="https://files.catbox.moe/pepiag.gif" height="28"/> 𖦏<br>
+aᥒy prᥒs/ f℮m dislik℮d  ‎ ‎  <img src="https://files.catbox.moe/j8gou6.gif"/>  ‎ ‎  basic dᥒi<br>
+໑᱖ ‎ ‎   ‎ ‎  ᥒiᥒah ‎ ‎  faith ‎ ‎  ut⠀ ⠀ ⠀ ⠀ <br>⠀ ⠀ ⠀ coᥒclav℮ ‎ ‎  daᥒgaᥒroᥒpa<br></p>
+<p align="center"><img src="https://files.catbox.moe/hpj5cw.png"/><img src="https://files.catbox.moe/mw50jp.png"/></p>
+<h6 align="center"><em>tooㅤshyㅤtoㅤint/ respondㅤsometimes ´ཀ`</em>
+  <br><img src="https://files.catbox.moe/z3u3wy.png" width="350"/></p>
