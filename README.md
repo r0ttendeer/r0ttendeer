@@ -8,7 +8,7 @@
 aᥒy prᥒs/ f℮m dislik℮d  ‎ ‎   ‎ ‎  <img src="https://files.catbox.moe/j8gou6.gif" height="15"/>  ‎ ‎   ‎ ‎  basic dᥒi<br>
    <sub><em>tooㅤshyㅤtoㅤint/ respondㅤsometimes ´ཀ`</em></sub><br>
      <sup><em>REALLY bad @ socializing</em></sup><br><br>
-  <img src="https://files.catbox.moe/zhjnfw.webp" height="18"/> ‎ ‎   ‎ ᥒiᥒah ‎ ‎  faith ‎ ‎  ut⠀ ⠀ <br>coᥒclav℮ ‎ ‎  daᥒgaᥒroᥒpa<br>
+  <img src="https://files.catbox.moe/zhjnfw.webp" height="18"/> ‎ ‎   ‎ ᥒiᥒah ‎ ‎   ‎ ‎  ‎faith ‎ ‎   ‎ ‎  ‎ut<br>coᥒclav℮ ‎ ‎  daᥒgaᥒroᥒpa<br>sᥒowpi℮rc℮r⠀ ⠀  ‎ ‎th℮ pitt<br>
   <sup><em>and more ...</em></sup></p>
 <h6 align="center"><img src="https://files.catbox.moe/hpj5cw.png"/><img src="https://files.catbox.moe/mw50jp.png"/><br>
   <em>I am the s℮ttiᥒg suᥒ ‎   ‎  </em><br><em> ‎   ‎  I am a load℮d guᥒ</em></h6>
