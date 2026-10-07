@@ -14,3 +14,8 @@ i also love bucky barnes but im not rly in the mcu fandom<br>
 [rentry](https://rentry.co/buckysarm) . straw . [ata](https://rottendeer.atabook.org/)
 <br><br>
 <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div3.png" width="450px"/>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=1y9pm5qv9uybes67tnfvfgoyh&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffb5b5&bar_color_cover=true">
+  </a>
+</p>
