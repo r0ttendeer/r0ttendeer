@@ -11,7 +11,7 @@ i also love bucky barnes but im not rly in the mcu fandom<br>
 
 <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/stamp.gif?v=1791168693927" width="90px"/> <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/stamp.png?v=1791168759875" width="85px"/>
 
-[rentry](https://rentry.co/buckysarm) . straw . [ata](https://rottendeer.atabook.org/)
+[rentry](https://rentry.co/buckysarm) . straw . [guns](https://guns.lol/buckluck) . [ata](https://rottendeer.atabook.org/)
 <br><br>
 <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div3.png" width="450px"/>
 
