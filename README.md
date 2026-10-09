@@ -1,16 +1,17 @@
-<img align="left" src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/gith.png" width="350px"/>
+<img align="left" src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/gith.png" width="370px"/>
 
 <div align="center">
 <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div2.png?v=1791164407862" width="450px"/><br>
 
-ᨳଓ <code>"<em>you're my man of war</em>"</code> ˎˊ˗<br>
+$\color{red}{\textsf{ᨳଓ　" you're my man of war "　ˎˊ˗}}$<br>
 <img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=red&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵꒰+^__^+꒱" alt=""/> <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/paw.gif?v=1791163069487" width="18px"/>
 
-<h5> bucky⠀⠀<img src="https://s5.ezgif.com/tmp/ezgif-52c8e8f9fca562e0.gif"/>⠀⠀he/any </h5>
+$\color{red}{\textsf{bucky}}$⠀⠀<img src="https://s5.ezgif.com/tmp/ezgif-52c8e8f9fca562e0.gif"/>⠀⠀he/any
 
-<h6> veryy shy + awkward but i try, int but pls be patient!<br>
-hi dbh fandom im very cool trust ,, please talk to me ^_^ <br>
-<sub>i love bucky barnes but im not rly in the mcu fandom</sub>
+$\normalsize{\textsf{veryy shy + awkward but i try, int but pls be patient!}}$	
+
+$\normalsize{\textsf{hi dbh fandom im very cool trust ,, please talk to me}}$	
+$\small{\textsf{i love bucky barnes but im not rly in the mcu fandom}}$
 <br><br>
 <code>my babiesss 𖹭 ⚞^._.^⚟</code><br>
 
