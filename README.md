@@ -6,7 +6,7 @@
 $\color{red}{\textsf{ᨳଓ　" you're my man of war "　ˎˊ˗}}$<br>
 <img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=red&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵꒰+^__^+꒱" alt=""/> <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/paw.gif?v=1791163069487" width="18px"/>
 
-$\color{red}{\textsf{bucky}}$⠀⠀<img src="https://s5.ezgif.com/tmp/ezgif-52c8e8f9fca562e0.gif"/>⠀⠀he/any
+$\color{red}{\textsf{bucky}}$⠀⠀<img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/star"/>⠀⠀he/any
 
 $\normalsize{\textsf{veryy shy + awkward but i try, int but pls be patient!}}$	
 
