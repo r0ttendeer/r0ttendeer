@@ -1,16 +1,18 @@
-<img align="left" src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/gith.png" width="370px"/>
-
 <div align="center">
 <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div2.png?v=1791164407862" width="450px"/><br>
+    
+$\color{red}{\textsf{𑣲❀　" come back to me... "　⋆˙⟡}}$<br>
+<img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/mili" width="450px"/><br>
 
-$\color{red}{\textsf{ᨳଓ　" you're my man of war "　ˎˊ˗}}$<br>
+$\color{red}{\textsf{ᨳଓ　" a toast... TO LOVE! "　ˎˊ˗}}$<br>
 <img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=red&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵꒰+^__^+꒱" alt=""/> <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/paw.gif?v=1791163069487" width="18px"/>
 
-$\color{red}{\textsf{bucky}}$⠀⠀<img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/star"/>⠀⠀he/any
+$\color{red}{\textsf{bucky}}$⠀⠀<img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/star"/>⠀⠀
+$\color{red}{\textsf{he/any}}$
 
-$\normalsize{\textsf{veryy shy + awkward but i try, int but pls be patient!}}$	
+$\normalsize{\textsf{veryy shy + awkward but i try, PLEASE int but pls be patient!}}$	
 
-$\normalsize{\textsf{hi dbh fandom im very cool trust ,, please talk to me}}$	
+$\normalsize{\textsf{dbh, militsioner, faith, etc . . . rentry for more!}}$	<br>
 $\small{\textsf{i love bucky barnes but im not rly in the mcu fandom}}$
 <br><br>
 <code>my babiesss 𖹭 ⚞^._.^⚟</code><br>
