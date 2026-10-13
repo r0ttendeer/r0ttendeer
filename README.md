@@ -4,7 +4,7 @@
 <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div2.png?v=1791164407862" width="450px"/><br>
             $\color{#ff899c}{\textsf{𑣲❀　" come back to me... "　⋆˙⟡}}$ <br>
 <img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/mili" width="450px"/><br>
-            <img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=ff899c&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵꒰✚❤︎꒱" alt=""/><br>
+<image src="https://komarev.com/ghpvc/?username=r0ttendeer&abbreviated=true&style=flat-square&color=ff899c&style=plastic&label=󠁪󠁪󠁝󠁝󠁵󠁵　✚❤︎　"/><br>
 <img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/militsioner"><br>
 <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div3.png" width="450px"/> 
 </div>
@@ -26,6 +26,8 @@ $\normalsize{\textsf{PLEASE INT but pls be patient (♡ˊ͈ ꒳ ˋ͈)}}$	<br>
 $\color{#ff899c}{\textsf{Interests}}$ <br>
 $\normalsize{\textsf{dbh, militsioner, faith, etc . . . rentry for more!}}$	<br>
 $\small{\textsf{i love bucky barnes but im not rly in the mcu fandom}}$ <br>
+<br>
+<img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/hearts" width="40px"/><img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/hearts" width="40px"/>
 <br><br>
 [![](https://file.garden/asL1d_zQTtQK6NOl/mili%20git/rentry)](https://rentry.co/buckysarm)　　![](https://file.garden/asL1d_zQTtQK6NOl/mili%20git/straw)<br>[![](https://file.garden/asL1d_zQTtQK6NOl/mili%20git/gunslol)](https://guns.lol/buckluck)　　[![](https://file.garden/asL1d_zQTtQK6NOl/mili%20git/ata)](https://rottendeer.atabook.org/)
 <br><br>
