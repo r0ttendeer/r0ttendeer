@@ -21,9 +21,8 @@ $\large{\color{#ff899c}{\textsf{he/any '༉୭}}}$<br>
 <img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/hearts" width="40px"/><img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/hearts" width="40px"/><br>
 
 $\normalsize{\textsf{I'm veryy shy + awkward but I try!!}}$ <br>
-$\normalsize{\textsf{PLEASE INT but pls be patient (♡ˊ͈ ꒳ ˋ͈)}}$	
+$\normalsize{\textsf{PLEASE INT but pls be patient (♡ˊ͈ ꒳ ˋ͈)}}$	<br>
 
------
 $\color{#ff899c}{\textsf{Interests}}$ <br>
 $\normalsize{\textsf{dbh, militsioner, faith, etc . . . rentry for more!}}$	<br>
 $\small{\textsf{i love bucky barnes but im not rly in the mcu fandom}}$ <br>
