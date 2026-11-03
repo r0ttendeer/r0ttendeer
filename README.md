@@ -2,7 +2,7 @@
 <img src="https://file.garden/asL1d_zQTtQK6NOl/divideru"/>
 
 <div align="left">
-<img align="left" src="https://file.garden/asL1d_zQTtQK6NOl/simosh" width="350px"/> <br>
+<img align="left" src="https://file.garden/asL1d_zQTtQK6NOl/simosh" width="370px"/> <br>
   
 ${\huge\color{#8e5369}B \color{#a66b82}U \color{#ba8595}C \color{#c6a5a4}K \color{#d5cbb7}Y \ \ ꒰❁꒱ \ \ \color{#d9d5bb}H \color{#d5cbb7}E \color{#c6a5a4}/ \ \color{#ba8595}A \color{#a66b82}N \color{#8e5369}Y }$
 <br>
@@ -18,7 +18,9 @@ ${\small\color{#d9d6bc}dbh,\ \color{#c6a5a4}militsioner,\ \color{#d9d6bc}faith,\
 
   <a href="https://github.com/kittinan/spotify-github-profile">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=1y9pm5qv9uybes67tnfvfgoyh&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=8e5369&bar_color_cover=false">
-  </a></div>
-
+  </a> <br>
+  <a href="https://github.com/whiteSHADOW1234/TypingSVG"><img src="https://typingsvg.vercel.app/api/svg?width=300&height=70&backgroundColor=%230d1117&backgroundOpacity=0&border=false&cursorStyle=blank&deletionBehavior=stay&lines=%5B%7B%22text%22%3A%22Tell+me+how+you+feel+about+me%21%21%22%2C%22font%22%3A%22Mountains+of+Christmas%22%2C%22color%22%3A%22%23c6a5a4%22%2C%22fontSize%22%3A20%2C%22typingSpeed%22%3A0.1%7D%2C%7B%22text%22%3A%22Do+you+like+or+like-like+me%3F+%E2%99%A1%22%2C%22font%22%3A%22Mountains+of+Christmas%22%2C%22color%22%3A%22%238e5369%22%2C%22fontSize%22%3A20%2C%22typingSpeed%22%3A0.1%7D%5D" alt="Typing SVG" /></a>
+  
+  </div>
   <img src="https://file.garden/asL1d_zQTtQK6NOl/dividerd"/>
 </div>
