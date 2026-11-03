@@ -1,0 +1,23 @@
+<div align="center">
+<img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div2.png?v=1791164407862" width="500px"/><br>
+<img align="left" src="https://file.garden/asL1d_zQTtQK6NOl/simosh" width="270px"/>
+  <br>
+
+<code>wow massive wip!!</code>
+  <div>
+$\large{\color{#b2778d}{\textsf{bucky}}}$
+⠀⠀<img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/flower"/>⠀⠀
+$\large{\color{#b2778d}{\textsf{he/any}}}$<br>
+  </div>
+  
+  $\normalsize{\textsf{I'm veryy shy + awkward but I try!!}}$ <br>
+$\normalsize{\textsf{PLEASE INT but pls be patient (♡ˊ͈ ꒳ ˋ͈)}}$	<br>
+
+  <img src="https://profile-counter-6gcm88z3y-r0ttendeers-projects.vercel.app/api/views?id=r0ttendeers&label=✚❤︎%20&style=flat-square&rightColor=ff899c&leftColor=ffbcc3"/> <br>
+  <a href="https://rentry.co/buckysarm">rentry</a>　 <a href="https://pl600s.straw.page/">straw</a>　 <a href="https://guns.lol/buckluck">guns</a>　 <a href="https://buckluck.atabook.org/">ata</a> <br>
+
+  <a href="https://github.com/kittinan/spotify-github-profile">
+  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=1y9pm5qv9uybes67tnfvfgoyh&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffb5b5&bar_color_cover=false">
+  </a><br>
+  <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div3.png" width="500px"/><br>
+</div>
