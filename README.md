@@ -1,11 +1,9 @@
 <div align="center">
-<img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div2.png?v=1791164407862" width="500px"/><br>
 <img align="left" src="https://file.garden/asL1d_zQTtQK6NOl/simosh" width="270px"/>
   <br>
-
-<code>wow massive wip!!</code>
-
-${\color{#8e5369}᭪༊ \ BU \color{#a66b82}CK \color{#ba8595}Y \ . \ \color{#c6a5a4}HE \color{#c6a5a4}/ \ \color{#ba8595}AN \color{#a66b82}Y \color{#8e5369}  \ 𖹭 ֶָ֢}$
+<div align="left">
+  
+${\large\color{#8e5369}᭪༊ \ BU \color{#a66b82}CK \color{#ba8595}Y \ . \ \color{#c6a5a4}HE \color{#c6a5a4}/ \ \color{#ba8595}AN \color{#a66b82}Y \color{#8e5369}  \ 𖹭 ֶָ֢}$
 <br><img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/flower"/>
 
   
@@ -17,6 +15,6 @@ ${\color{#d9d6bc} PLEASE\ feel\ free\ to\ INT\ either\ way!!\ (♡ˊ͈ ꒳ ˋ͈)
 
   <a href="https://github.com/kittinan/spotify-github-profile">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=1y9pm5qv9uybes67tnfvfgoyh&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffb5b5&bar_color_cover=false">
-  </a><br>
-  <img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div3.png" width="500px"/><br>
+  </a> </div>
+  <br>
 </div>
