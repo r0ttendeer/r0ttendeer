@@ -12,7 +12,7 @@ ${\huge\color{#8e5369}B \color{#a66b82}U \color{#ba8595}C \color{#c6a5a4}K \colo
  ${\normalsize\color{#c6a5a4}  PLEASE\ \color{#d9d6bc}feel\ free\ to\ \color{#c6a5a4}INT\ \color{#d9d6bc}either\ way!!\ \color{#c6a5a4}(♡ˊ͈ ꒳ ˋ͈)}$	<br>
 
 ${\normalsize\color{#8e5369}Ი︵𐑼 \ \ ⧼ \ I \color{#a66b82}N \color{#c6a5a4}T \color{#c6a5a4}E \color{#d5cbb7}R \color{#c6a5a4}E \color{#c6a5a4}S \color{#a66b82}T \color{#8e5369}S \ ⧽}$ <br>
-${\small\color{#d9d6bc}dbh,\ \color{#c6a5a4}militsioner,\ \color{#d9d6bc}faith,\ \color{#c6a5a4}deer,\ \color{#d9d6bc}medical\ shows,\ \color{#c6a5a4}robots,\ ...\ \color{#d9d6bc}rentry\ for\ more!!}$
+${\small\color{#d9d6bc}dbh,\ \color{#c6a5a4}militsioner,\ \color{#d9d6bc}faith,\ \color{#c6a5a4}deer,\ \color{#d9d6bc}medical\ shows,\ \color{#c6a5a4}robots...\ \color{#d9d6bc}rentry\ for\ more!!}$
 
 <a href="https://rentry.co/buckysarm"><img src="https://file.garden/asL1d_zQTtQK6NOl/brentry" width="80px"/></a> <a href="https://pl600s.straw.page/"><img src="https://file.garden/asL1d_zQTtQK6NOl/bstraw" width="80px"/></a> <a href="https://guns.lol/buckluck"><img src="https://file.garden/asL1d_zQTtQK6NOl/bguns" width="80px"/></a> <a href="https://buckluck.atabook.org/"><img src="https://file.garden/asL1d_zQTtQK6NOl/batab" width="80px"/></a><br>
 
